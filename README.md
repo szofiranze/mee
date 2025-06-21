@@ -2,7 +2,7 @@
 ❦.- ✯¸.•´*¨`*•✿ ✿•*`¨*`•.¸✯
 Hi, Im Szofi, 16 yrs old.
 
-➥.i play mlbb id:1229917199 (6606) , zzz, skullgirls (manoana) and D4DJ (W4H2XLrQ)
+➥.i play mlbb id:1229917199 (6606) , zzz, skullgirls (manoana) and D4DJ (W4H2XLrQ) and Persona(all)
 
 ➥i might AFK bc playing games so w2i!! ✩
 
