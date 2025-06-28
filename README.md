@@ -11,4 +11,5 @@ Hi, Im Szofi, 16 yrs old.
 back to pt, pls dnc (do NOT copy) my skins pls. you can cuddle me everytime you want, i really apreacite if you will be my friend! idm it at all
 !![845e5de543d0756c67375edebcb98230](https://github.com/user-attachments/assets/3a9ceb56-a370-409e-8acd-0299ccefe54e)
 
- have a gn/gm!
+ have a gn/gm!![c05698ee2ba7e5e6daad326c3269f310](https://github.com/user-attachments/assets/556a3df9-3828-4513-b336-d3d4d769036c)
+
