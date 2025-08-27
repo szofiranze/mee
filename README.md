@@ -1,3 +1,4 @@
+
 # me.
 ❦.- ✯¸.•´*¨`*•✿ ✿•*`¨*`•.¸✯
 Hi, Im Szofi, 16 yrs old.
@@ -10,6 +11,7 @@ Hi, Im Szofi, 16 yrs old.
 
 back to pt, pls dnc (do NOT copy) my skins pls. you can cuddle me everytime you want, i really apreacite if you will be my friend! idm it at all
 ! ISAGIXRIN MY GOATS
-!![flat750x1000075t u2](https://github.com/user-attachments/assets/a1f76619-e408-42c2-841c-802706ba76c3)
+!![should-rin-or-isagi-win-next-match-v0-w7g36sjkow5c1](https://github.com/user-attachments/assets/a7a060b1-c8c1-4556-92d6-f908c4d37ca1)
+
 have gn gm !
 
